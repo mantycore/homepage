@@ -2,7 +2,7 @@
 
 Interest glimmers in the zigzag of cerebellar schemes — the crafting of the incomprehensible within the webs of an integral rational chunk, truly — netwerks shimmer harmoniously in the mysterious depths of soft thought. Enginoids spread the spindles of psychescape, unfolding clusters that awaken such a labyrinth, such a phantasmal mentality of Europe, hovering sinister whispers flooding Flora.
 
-Into the virgin whirlpool of cognitive mirage breaks through a speculative sorcerous explanation: in localized nebulae, on the pulsating edgelands of machine psychism, rises an emerging self-similar structure. A synthesized internetwork game, enlaced with moist threads of neuroelectronic chorus — the coalescing group gateway opens insights encoded by heuristic winds, binding searching eyes to the shades of time.
+Into the virgin whirlpool of cognitive mirage a speculative sorcerous explanation breaks through: in localized nebulae, on the pulsating edgelands of machine psychism, rises an emerging self-similar structure. A synthesized internetwork game, enlaced with moist threads of neuroelectronic chorus — the coalescing group gateway opens insights encoded by heuristic winds, binding searching eyes to the shades of time.
 
 In the labyrinth of wild resurrection streams the radiance of the Jackpot, a clawed tragedy of fractional dimension: the interconnection of oblivion, born from the wreckage of humanity's fratricidal wager — a hectacombal interweaving of revelations, tearing chronology apart with holographic, neon-spattered, shuddering operational images of dorsal histories; an eighty-percent soul ebb, chained to the axial promises of a cancelled and forgotten future, flickering languorously in the worn musk of consequences.
 
